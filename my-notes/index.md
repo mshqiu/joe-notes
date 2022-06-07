@@ -74,5 +74,5 @@
 
 ## 22年特训营
 
-(2022年3-5月的短线操作思路与核心)[https://appzbpv34pq6651.h5.xiaoeknow.com/p/course/video/v_628a3fc3e4b01c509ab3df04?product_id=p_62893b86e4b01a48520231c9]
+[2022年3-5月的短线操作思路与核心](https://appzbpv34pq6651.h5.xiaoeknow.com/p/course/video/v_628a3fc3e4b01c509ab3df04?product_id=p_62893b86e4b01a48520231c9)
 
